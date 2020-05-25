@@ -28,7 +28,7 @@ I want to change my looks and body. I will use a beauty regime, supplements, and
 
 ##### Culture, Internet, Information and Colllaboration
 
-Beautiful worlds exist on the internet. I find sites and work of other contemporaries I want to use, store, and steward. I will keep a list, curating and maintaining my own archive.
+Beautiful worlds exist on the internet. I find sites and work of other contemporaries I want to store and use. I will keep a list, curating and maintaining my own archive. My defensible worldview will come from this body.
 
 ##### The Truth About Home
 
