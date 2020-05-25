@@ -8,28 +8,28 @@ eleventyNavigation:
 ---
 2020-2022 Moodboards 
 
-I'm moving between many projects, I keep track. I made a two year plan and I am opening up about it. Everything begins in June 2020 and I will continue to post on it with related materials and further reading. I wrote the following in terms of what I planned. 
+I'm moving between many projects, I keep track. I made a two year plan and I am opening up about it. Everything begins in June 2020 and I will continue to post on it with related materials and further reading. I wrote the following in terms of what I want. Specific goals are set in the first posts. The Plan appears later.
 
-###### Visual, Performance Art, and Music
+##### Visual, Performance Art, and Music
 
-I am interested in drawing and painting. I want to use new materials in new mediums as well. I would like to learn new design software. I am also interested in critical theory and politics, performance and social art. I care about making music. I want to train my voice. I am learning how to play guitar and piano. I want to learn how to record, mix, and produce my own sounds. I really want to sing.
+I want to draw and paint. I want to use new materials in new mediums as well. I would like to learn new software. I am also interested in critical theory and politics, performance and social art. I care about making music. I want to train my voice. I want to learn and practice guitar, drums, bass, and piano. I want to learn how to record, mix, and produce my own sounds. I want to listen to more music, make more playlists. DJ and VJ. I really want to sing.
 
 ##### Screenwriting and Creative Writing
 
-I've just started a screenwriting class. I want to do something important with this knowledge. I plan to maintain all the writing projects which were created this year until 2022. Getting the sites live took some time, but I think summer provides an opportunity to let the writing begin. Screenwriting class is over in five weeks. By that time, I will also have learned to use a camera for photography and film.
+I started taking a screenwriting class. I want to do something important with this knowledge. It is a five week class. By that time, I will also have learned to use a camera for photography and film. I plan to maintain all the writing projects which were created this year until the year 2022 at which time I will evolve them. Getting the sites live took some time. Summer provides an opportunity to begin writing and scheduling around the writing. I want to get paid writing jobs.
 
 ##### Personal and Professional Development
 
-Instead of working, I am working on myself. I do plan to work at the end of the first year of this project. I have a confidential constraint where it is in my best interest to not exceed a certain income until April 2021. Therefore in spring 2021, I want to  start working and I want to make a lot of money. Until then, I really want to be alone and find enough time to do everything I want. I want to be healthy and well. I want to be peaceful.
+Instead of working, I am working on myself. I do plan to work at the end of the first year of this project. There is a confidential constraint on me where it is in my best interest to not exceed a certain income until April 2021. After, I want to work. By spring 2021, I want a job. I want to make a lot of money. Until then, I really want to be alone and find enough time to do everything I want. I want to be healthy and well. I want to be peaceful. There should be no pressure on me for the duration of my project.
 
 ##### Physical Care
 
-I want to change my looks and body using a beauty regime, nutrition, and by getting in shape creatively. I want to increase my fitness. Good sleep and exercise must become a much larger investment. I care about improving myself and I want to be the best looking version of myself I can be. The strongest, leanest, and most atheletic. The happiest. It is important to improve my image because I would also like to be in my own movies if possible, the subject of photos and in society, also. 
+I want to change my looks and body. I will use a beauty regime, supplements, and nutrition. I am going to get in shape. I want to increase my fitness and make no excuses, overcoming all aspects of my body which have kept me down. I will invest in good sleep and exercise. I care about improving myself and I want to be the best version of myself I can be. The strongest, leanest, and most atheletic. The happiest. It is important to improve my image because I would like to be in my own short films and movies if possible, the subject of photos, better integrated and more confident in society. I want to be a semi-public or public figure. I want to make videos and I stop at my own looks, image, and body type/shape, injuries and disfigurement.
 
 ##### Culture, Internet, Information and Colllaboration
 
-Beautiful worlds exist on the internet. I find sites and work of other contemporaries I want to use better, store, and steward. I will keep a list and maintain my own archive.
+Beautiful worlds exist on the internet. I find sites and work of other contemporaries I want to use, store, and steward. I will keep a list, curating and maintaining my own archive.
 
 ##### The Truth About Home
 
-The last and largest thing is coming to terms with what has happened in my family. What's happened to me, and what's happened to them. That's all I have to say. In two years, I want to have gone through enough with myself that this and the rest of my past just doesn't matter anymore.
+The last and largest thing is coming to terms with what has happened in my family. What has happened to me. That's all I have to say. It's all I can can and remain karmically clear In two years, I want to have gone through enough with myself that they don't matter and the rest of my past just doesn't matter anymore. 
