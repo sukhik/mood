@@ -1,5 +1,5 @@
 ---
-name: Dan Urbanowicz
-email: dan.urbanowicz@gmail.com
-github: https://github.com/danurbanowicz
+name: Sukhi
+email: sukhikgr@gmail.com
+github: https://github.com/sukhikg
 ---
