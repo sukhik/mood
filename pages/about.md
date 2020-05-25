@@ -1,12 +1,12 @@
 ---
 title: About
-date: 2017-01-01T00:00:00.000Z
+date: 2020-05-25T00:00:00.000Z
 permalink: /about/index.html
 eleventyNavigation:
   key: About
   order: 1
 ---
-2020-2022 Moodboards between many projects, I keep track. I have a two year plan and I am opening up about it. The following areas are what I spend my time on. Everything begins in June 2020 and I will post on progress with related materials I want to keep on hand until 2022, including options for further reading. I wrote the following in terms of goals. 
+2020-2022 Moodboards between many projects, I keep track. I have a two year plan and I am opening up about it. The following areas are what I spend my time on. Everything begins in June 2020 and I will post on progress with related materials and further reading I want to keep on hand until 2022. I wrote the following in terms of goals. 
 
 ###### Visual, Performance Art, and Music
 
