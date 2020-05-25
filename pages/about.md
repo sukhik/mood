@@ -6,7 +6,6 @@ eleventyNavigation:
   key: About
   order: 1
 ---
-2020-2022 Moodboards 
 
 I'm moving between many projects, I keep track. I made a two year plan and I am opening up about it. Everything begins in June 2020 and I will continue to post on it with related materials and further reading. I wrote the following in terms of what I want. Specific goals are set in the first posts. The Plan appears later.
 
@@ -32,4 +31,4 @@ Beautiful worlds exist on the internet. I find sites and work of other contempor
 
 ##### The Truth About Home
 
-The last and largest thing is coming to terms with what has happened in my family. What has happened to me. That's all I have to say. It's all I can can and remain karmically clear In two years, I want to have gone through enough with myself that they don't matter and the rest of my past just doesn't matter anymore. 
+The last and largest thing is coming to terms with what has happened in my family. What has happened to me. That's all I have to say. It's all I can say and remain karmically clear. In two years, I want to have gone through enough with myself that they don't matter and the rest of my past just doesn't matter anymore. 
