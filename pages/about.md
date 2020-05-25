@@ -1,32 +1,33 @@
 ---
-title: About us
+title: About
 date: 2017-01-01T00:00:00.000Z
 permalink: /about/index.html
 eleventyNavigation:
   key: About
   order: 1
 ---
-Leverage agile frameworks to provide a robust synopsis for high level overviews. Iterative approaches to corporate strategy foster collaborative thinking to further the overall value proposition. Organically grow the holistic world view of disruptive innovation via workplace diversity and empowerment.
+2020-2022 Moodboards between many projects, I keep track. I have a two year plan and I am opening up about it. The following areas are what I spend my time on. Everything begins in June 2020 and I will post on progress with related materials I want to keep on hand until 2022, including options for further reading. I wrote the following in terms of goals. 
 
-Add a few line breaks in here to test:-
-Capitalize  
-on  
-low  
-hanging  
-fruit  
+# Visual, Performance Art, and Music
 
-## Our services
+I am interested in making drawings and painting. I want to use new materials in new mediums as well. I would like to learn new design software. I am also interested in critical theory and politics, performance and social art. I care about making music. I want to train my voice. I am learning how to play guitar and piano. I want to learn how to record, mix, and produce my own sounds. I really want to sing.
 
-Bring to the table win-win survival strategies to ensure proactive domination. At the end of the day, going forward, a new normal that has evolved from generation X is on the runway heading towards a streamlined cloud solution. User generated content in real-time will have multiple touchpoints for offshoring. Organically grow the holistic world view of disruptive innovation via workplace diversity and empowerment.
+## Screenwriting and Creative Writing
 
-### Blue-sky thinking
+I've just started a screenwriting class. I want to do something important with this knowledge. I plan to maintain all the writing projects which were created this year until 2022. Getting the sites live took some time, but I think summer provides an opportunity to let the writing begin. Screenwriting class is over in five weeks. By that time, I will also have learned to use a camera for photography and film.
 
-Capitalize on low hanging fruit to identify a ballpark value added activity to beta test. Override the digital divide with additional clickthroughs from DevOps. Nanotechnology immersion along the information highway will close the loop on focusing solely on the bottom line. Organically grow the holistic world view of disruptive innovation via workplace diversity and empowerment.
+### Personal and Professional Development
 
-#### Management frameworks
+Instead of working, I am working on my self. I do plan to work at the end of the first year of this project. In spring 2021, I want to work and I want to make a lot of money. Until then, I really want to be alone and find enough time to do everything I want. I want to be healthy and well.
 
-Podcasting operational change management inside of workflows to establish a framework. Taking seamless key performance indicators offline to maximise the long tail. Keeping your eye on the ball while performing a deep dive on the start-up mentality to derive convergence on cross-platform integration. Organically grow the holistic world view of disruptive innovation via workplace diversity and empowerment.
+#### Physical Care
 
-##### Regulatory convergence
+I want to change my looks and body with fitness and nutrition. Good sleep and exercise must become a much larger investment. I care about improving myself and I want to be the best looking version of myself I can be. The strongest, leanest, and most atheletic. The happiest. It is important to improve my image because I would also like to be in my own movies if possible, be the subject of photos and in society, also. 
 
-Collaboratively administrate empowered markets via plug-and-play networks. Dynamically procrastinate B2C users after installed base benefits. Dramatically visualize customer directed convergence without revolutionary ROI. Organically grow the holistic world view of disruptive innovation via workplace diversity and empowerment.
+##### Culture, Internet, Information and Colllaboration
+
+Beautiful worlds exist on the internet, and I find sites and the work of other contemporaries I want to use better, store, and steward. I will keep a list.
+
+###### The Truth About Home
+
+The last and largest thing is coming to terms with what has happened in my family. What has happened to me, and what has happened to them. That's all I have to say. In two years, I want to have gone through enough therapy that this and the rest of my past just doesn't matter anymore.
