@@ -1,3 +1,3 @@
-# Eleventy Netlify Boilerplate
+# 2plan // Moodboards
 
-Being used for mood boards
+Being used for mood boards built with 11ty & Netlify
