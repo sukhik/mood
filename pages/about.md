@@ -7,7 +7,7 @@ eleventyNavigation:
   order: 1
 ---
 
-I'm moving between many projects, I keep track. I made a two year plan and I am opening up about it. Everything begins in June 2020 and I will continue to post on it with related materials and further reading. I wrote the following in terms of what I want. Specific goals are set in the first posts. The Plan appears later.
+I'm moving between many projects, I keep track. I made a two year plan and I am opening up about it. Everything begins in June 2020 and I will continue to post on it with related materials and further reading. I wrote the following in terms of what I want. Specific goals are set in the first posts. This is the Plan.
 
 ##### Visual, Performance Art, and Music
 
