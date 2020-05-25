@@ -9,4 +9,4 @@ eleventyNavigation:
 ---
 # Welcome
 
-I am cleansing my soul. This is my two year plan.
+This is my two year plan to cleanse my soul.
