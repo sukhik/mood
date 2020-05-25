@@ -24,7 +24,7 @@ Instead of working, I am working on myself. I do plan to work at the end of the 
 
 ##### Physical Care
 
-I want to change my looks and body. I will use a beauty regime, supplements, and nutrition. I am going to get in shape. I want to increase my fitness and make no excuses, overcoming all aspects of my body which have kept me down. I will invest in good sleep and exercise. I care about improving myself and I want to be the best version of myself I can be. The strongest, leanest, and most atheletic. The happiest. It is important to improve my image because I would like to be in my own short films and movies if possible, the subject of photos, better integrated and more confident in society. I want to be a semi-public or public figure. I want to make videos and I stop at my own looks, image, and body type/shape, injuries and disfigurement.
+I want to change my looks and body. I will use a beauty regime, supplements, and nutrition. I am going to get in shape. I want to increase my fitness and make no excuses, overcoming all aspects of my body which have kept me down. I will invest in good sleep and exercise. I need to fix my posture and breathing. I care about improving myself and I want to be the best version of myself I can be. The strongest, leanest, and most atheletic. The happiest. It is important to improve my image because I would like to be in my own short films and movies if possible, the subject of photos, better integrated and more confident in society. I want to be a semi-public or public figure. I want to make videos and I stop at my own looks, image, and body type/shape, injuries and disfigurement.
 
 ##### Culture, Internet, Information and Colllaboration
 
