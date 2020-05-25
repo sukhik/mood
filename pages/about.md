@@ -6,7 +6,7 @@ eleventyNavigation:
   key: About
   order: 1
 ---
-2020-2022 Moodboards between many projects, I keep track. I have a two year plan and I am opening up about it. The following areas are what I spend my time on. Everything begins in June 2020 and I will post on progress with related materials and further reading I want to keep on hand until 2022. I wrote the following in terms of goals. 
+2020-2022 Moodboards between many projects, I keep track. I have a two year plan and I am opening up about it. Everything begins in June 2020 and I will post on progress with related materials and further reading. I wrote the following in terms of what I am doing. 
 
 ###### Visual, Performance Art, and Music
 
