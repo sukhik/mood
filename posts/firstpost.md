@@ -1,27 +1,20 @@
 ---
-title: This is my first post
-date: 2015-01-01T00:00:00.000Z
+title: Getting ready to slay for the next two years
+date: 2020-05-25T00:00:00.000Z
 author: Sukhi
-summary: Why contemplating our mortality can be a powerful catalyst for change
+summary: Resting and Accepting before Changing Everything
 tags:
-  - tech
-  - environment
-  - politics
-  - sport
+  - wellness
+  - self-improvement
+  - change
+  - growth
 ---
-Leverage agile frameworks to provide a robust synopsis for high level overviews. Iterative approaches to corporate strategy foster collaborative thinking to further the overall value proposition. Organically grow the holistic world view of disruptive innovation via workplace diversity and empowerment.
+The two year plan isn't new. I started thinking about it a long time ago. I regularly dreamed of changing myself and visualized it throughout my waking life. I didn't commit to any changes but kept adapting to the world around me while trying to build a support system of people who would help me. I have been really let down. I was attached to people I couldn't let go of. These people were holding me back. Until yesterday, I was bogged down by my attachment to these people who didn't care about me. I always needed more time, and I never needed anyone else.
 
-Bring to the table win-win survival strategies to ensure proactive domination. At the end of the day, going forward, a new normal that has evolved from generation X is on the runway heading towards a streamlined cloud solution. User generated content in real-time will have multiple touchpoints for offshoring.
+Upon realizing this today I turned a new leaf. There are things I'm doing which I must stop doing, and there are things I'm not doing which I must. A soul cleanse is a tall order so the fixed point of time at which this work will be evaluated is two years in the future. 
 
 ## Section Header
 
 Capitalize on low hanging fruit to identify a ballpark value added activity to beta test. Override the digital divide with additional clickthroughs from DevOps. Nanotechnology immersion along the information highway will close the loop on focusing solely on the bottom line.
 
-``` text/2-3
-// this is a command
-function myCommand() {
-	let counter = 0;
-	counter++;
-}
-```
 Organically grow the holistic world view of disruptive innovation via workplace diversity and empowerment.
