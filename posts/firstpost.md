@@ -2,7 +2,7 @@
 title: Getting ready to slay for the next two years
 date: 2020-05-25T00:00:00.000Z
 author: Sukhi
-summary: Resting and Accepting before Changing Everything
+summary: Resting and accepting before I change everything
 tags:
   - wellness
   - self-improvement
