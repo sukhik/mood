@@ -26,7 +26,7 @@ Goal: Start working spring 2021
 
 ##### Physical Care
 
-Using a beauty/exercise regime and nutrition, I want to change my looks and body. I have to get in better shape. I want to increase my fitness and make no excuses, overcoming all aspects of the body which keep me down. I am investing in good sleep and the correct morning, afternoon, and evening routines for me. I need to fix my posture and breathing. It is important to improve my image because I would like to be better integrated and more confident in society and be the subject of photos.
+Using a beauty/exercise regimen and nutrition, I want to change my looks and body. I have to get in better shape. I want to increase my fitness and make no excuses, overcoming all aspects of the body which keep me down. I am investing in good sleep and the correct morning, afternoon, and evening routines for me. I need to fix my posture and breathing. It is important to improve my image because I would like to be better integrated and more confident in society and be the subject of photos.
 Goal: 115-119 lbs of lean muscle with corrected posture and tongue position in breathing
 
 ##### Culture, Internet, Information and Colllaboration
