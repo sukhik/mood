@@ -7,7 +7,7 @@ eleventyNavigation:
   order: 1
 ---
 
-In a reaction to the world around me, I made a two year plan. Everything begins in June 2020 and is given a two year time-horizon. I wrote the following in terms of what I'm tracking. This is The Plan.
+In a reaction to the world around me, I made a two year plan. Everything begins in June 2020 and is given a two year time-horizon. The following is what I am doing and what I'm tracking. This is The Plan.
 
 ##### Visual, Performance Art, and Music
 
@@ -17,7 +17,7 @@ Goals: Sell Art
 ##### Screenwriting, Creative Writing, Radio/Television/Film
 
 I'm taking a 6-week screenwriting class and teaching myself how to use a camera for film and photography at the same time. I want to do something important with this know-how: create shows to tell stories, start my own YouTube channel. I also plan to ship sophisticated content to every writing project I started this year. Getting the sites live took some time. Summer provides an opportunity to begin writing and scheduling around the writing.
-Goal: Get a paid writing job.
+Goal: Get a paid writing job
 
 ##### Personal and Professional Development
 
@@ -32,7 +32,7 @@ Goal: 115-119 lbs of lean muscle with corrected posture and tongue position in b
 ##### Culture, Internet, Information and Colllaboration
 
 I want to store and use the work of other contemporaries in my moodboards. I will keep a list, curating and maintaining my own archive. My defensible worldview will come from this body. The collection will be representative of my state.
-Goal: Be consistent
+Goal: Don't waste energy
 
 ##### The Truth About Home
 
