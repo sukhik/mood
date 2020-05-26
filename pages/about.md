@@ -11,22 +11,22 @@ In a reaction to the world around me, I made a two year plan. Everything begins 
 
 ##### Visual, Performance Art, and Music
 
-I want to maintain a studio practice while experimenting with new materials in new mediums to create goods. I want to compose music and learn music theory, train my voice and practice musical instruments while listening to more music, curating more playlists, DJing and VJing. I really want to sing.
-Goals: Sell Art
+I want to maintain a studio practice while experimenting with new materials in new mediums to create goods. I want to compose music and learn music theory, train my voice and practice musical instruments while listening to more music, curating playlists, DJing and VJing. I really want to sing.
+Goal: Sell Art
 
 ##### Screenwriting, Creative Writing, Radio/Television/Film
 
-I'm taking a 6-week screenwriting class and teaching myself how to use a camera for film and photography at the same time. I want to do something important with this know-how: create shows to tell stories, start my own YouTube channel. I also plan to ship sophisticated content to every writing project I started this year. Getting the sites live took some time. Summer provides an opportunity to begin writing and scheduling around the writing.
+I'm taking a 6-week screenwriting class and teaching myself how to use a camera for film and photography at the same time. I want to do something meaningful with this know-how: create shows to tell stories, start my own YouTube channel, work with my friends. I also plan to ship sophisticated content to every writing project I started this year. Getting the sites live took some time. Summer provides an opportunity to begin writing and scheduling around the writing.
 Goal: Get a paid writing job
 
 ##### Personal and Professional Development
 
-Instead of working, I am working on myself. I won't accept a job offer until spring 2021. Then, I want to start working and I want to make a ton of money. Until then, I really want to be alone and find enough time to do everything I want. I want to be healthy and well. I want to be peaceful. There should be no pressure on me for the duration of my project.
+Instead of working, I am working on myself. I won't accept a job offer until spring 2021. I want to start working and I want to make a ton of money. Until then, I really want to be alone and find enough time to do everything I want. I want to be healthy and well. I want to be peaceful. There should be no pressure on me for the duration of my project.
 Goal: Start working Spring 2021
 
 ##### Physical Care
 
-Using an beauty/exercise regime and nutrition, I want to change my looks and body. I have to get in better shape. I want to increase my fitness and make no excuses, overcoming all aspects of the body which keep me down. I am investing in good sleep and the correct morning, afternoon, and evening routines for me. I need to fix my posture and breathing. It is important to improve my image because I would like to be better integrated and more confident in society and be the subject of photos.
+Using a beauty/exercise regime and nutrition, I want to change my looks and body. I have to get in better shape. I want to increase my fitness and make no excuses, overcoming all aspects of the body which keep me down. I am investing in good sleep and the correct morning, afternoon, and evening routines for me. I need to fix my posture and breathing. It is important to improve my image because I would like to be better integrated and more confident in society and be the subject of photos.
 Goal: 115-119 lbs of lean muscle with corrected posture and tongue position in breathing
 
 ##### Culture, Internet, Information and Colllaboration
