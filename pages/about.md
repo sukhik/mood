@@ -12,7 +12,7 @@ In a reaction to the world around me, I made a two year plan. Everything begins 
 ##### Visual, Performance Art, and Music
 
 I want to maintain a studio practice while experimenting with new materials in new mediums to create goods. I want to compose music and learn music theory, train my voice and practice musical instruments while listening to more music, curating playlists, DJing and VJing. I really want to sing.
-Goal: Sell Art
+Goal: Sell art
 
 ##### Screenwriting, Creative Writing, Radio/Television/Film
 
@@ -22,7 +22,7 @@ Goal: Get a paid writing job
 ##### Personal and Professional Development
 
 Instead of working, I am working on myself. I won't accept a job offer until spring 2021. I want to start working and I want to make a ton of money. Until then, I really want to be alone and find enough time to do everything I want. I want to be healthy and well. I want to be peaceful. There should be no pressure on me for the duration of my project.
-Goal: Start working Spring 2021
+Goal: Start working spring 2021
 
 ##### Physical Care
 
@@ -32,7 +32,7 @@ Goal: 115-119 lbs of lean muscle with corrected posture and tongue position in b
 ##### Culture, Internet, Information and Colllaboration
 
 I want to store and use the work of other contemporaries in my moodboards. I will keep a list, curating and maintaining my own archive. My defensible worldview will come from this body. The collection will be representative of my state.
-Goal: Don't waste energy
+Goal: Study but don't waste energy
 
 ##### The Truth About Home
 
