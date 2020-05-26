@@ -8,6 +8,6 @@ eleventyNavigation:
   order: 0
 ---
 
-## moodboards 2020-2022
+## Welcome
 
 This is my two year plan to cleanse my soul.
