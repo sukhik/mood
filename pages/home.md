@@ -7,6 +7,7 @@ eleventyNavigation:
   key: Home
   order: 0
 ---
-# Moodboards 2020-2022
+
+## moodboards 2020-2022
 
 This is my two year plan to cleanse my soul.
