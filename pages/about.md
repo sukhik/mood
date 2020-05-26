@@ -29,7 +29,7 @@ Goal: Start working spring 2021
 Using a beauty/exercise regimen and nutrition, I want to change my looks and body. I have to get in better shape. I want to increase my fitness and make no excuses, overcoming all aspects of the body which keep me down. I am investing in good sleep and the correct morning, afternoon, and evening routines for me. I need to fix my posture and breathing. It is important to improve my image because I would like to be better integrated and more confident in society and be the subject of photos and video.
 Goal: 115-119 lbs of lean muscle with corrected posture and tongue position in breathing
 
-##### Culture, Internet, Information and Colllaboration
+##### Culture, Internet, Information and Collaboration
 
 I want to store and use the work of other contemporaries in my moodboards. I will keep a list, curating and maintaining my own archive. My defensible worldview will come from this body. The collection will be representative of my state.
 Goal: Study but don't waste energy
