@@ -7,7 +7,7 @@ eleventyNavigation:
   order: 1
 ---
 
-In a reaction to the world around me, I made a two year plan. Everything begins in June 2020 and is given a two year time-horizon. I am trying to solve the problem of not having enough time. The following is what I am doing and what I'm tracking for the term of the project. This is The Plan.
+Sick and tired, I made a two year plan. Everything begins in June 2020 and is given a two year time-horizon. The following is what I am doing and what I'm tracking for the term of this project. This is The Plan.
 
 ##### Visual, Performance Art, and Music
 
@@ -15,7 +15,7 @@ I want to maintain a studio practice while experimenting with new materials in n
 
 ##### Screenwriting, Creative Writing, Radio/Television/Film
 
-I'm taking a 6-week screenwriting class, learning about film and cinematography. I want to do something meaningful with this: tell stories, work with my friends. I plan to ship sophisticated content to every writing project I started this year. Getting the sites live took some time. Summer provides an opportunity to begin writing and scheduling around the writing. I will compose a book.
+I'm taking a 6-week screenwriting class, and learning about film and cinematography. I want to do something meaningful with this: tell stories, work with my friends. I plan to ship sophisticated content to every writing project I started this year. Getting the sites live took some time but summer provides an opportunity to begin writing and scheduling around the writing. I am composing a book and these digital publications are like my warmup.
 
 ##### Personal and Professional Development
 
