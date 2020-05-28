@@ -7,7 +7,7 @@ eleventyNavigation:
   order: 1
 ---
 
-Sick and tired, I made a two year plan. Everything begins in June 2020 and is given a two year time-horizon. The following is what I am doing and what I'm tracking for the term of this project. This is The Plan.
+I made a two year plan to make more time for myself. Everything begins in June 2020 and is given a two year time-horizon. The following is what I am doing and what I'm tracking for the term of this project. This is The Plan.
 
 ##### Visual, Performance Art, and Music
 
