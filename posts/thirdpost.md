@@ -1,10 +1,9 @@
 ---
-title: Goals: First week of June
-date: 2017-01-01T00:00:00.000Z
+title: Goals
+date: 2020-05-290:00:00.000Z
 author: Sukhi
-summary: Goalsetting
+summary: First week of June
 tags:
-  - June
   - goals 
 ---
 Bring to the table win-win survival strategies to ensure proactive domination. At the end of the day, going forward, a new normal that has evolved from generation X is on the runway heading towards a streamlined cloud solution. User generated content in real-time will have multiple touchpoints for offshoring.
