@@ -1,6 +1,6 @@
 ---
 title: Goals
-date: 2020-05-280:00:00.000Z
+date: 2020-05-28T00:00:00.000Z
 author: Sukhi
 summary: First week of June
 tags:
