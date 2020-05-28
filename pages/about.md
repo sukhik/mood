@@ -15,11 +15,11 @@ I want to maintain a studio practice while experimenting with new materials in n
 
 ##### Screenwriting, Creative Writing, Radio/Television/Film
 
-I'm taking a 6-week screenwriting class and learning how to use a camera for film and photography. I want to do something meaningful with this: tell stories, work with my friends. I also plan to ship sophisticated content to every writing project I started this year. Getting the sites live took some time. Summer provides an opportunity to begin writing and scheduling around the writing.
+I'm taking a 6-week screenwriting class, learning about film and cinematography. I want to do something meaningful with this: tell stories, work with my friends. I plan to ship sophisticated content to every writing project I started this year. Getting the sites live took some time. Summer provides an opportunity to begin writing and scheduling around the writing. I will compose a book.
 
 ##### Personal and Professional Development
 
-Instead of working, I am working on myself. I won't accept a job offer until spring 2021. I want to start working at that time and I want to make money. Until then, I really want to be alone and find enough time to do everything I want. I want to be healthy and well. I want to be peaceful. There should be no pressure on me for the duration of my project.
+Instead of working, I am working on myself. I won't accept a job offer until spring 2021. I want a full-time job at that time but not sooner. Until then, I really need to be alone and work privately. I want to be healthy and well. I want to be peaceful. There should be no pressure on me for the duration of my project. I am interested in building out the businesses and ventures I started.
 
 ##### Physical Care
 
@@ -27,7 +27,7 @@ Using a beauty/exercise regimen and nutrition, I want to change my looks and bod
 
 ##### Culture, Internet, Information and Collaboration
 
-I want to store and use the work of other contemporaries in my moodboards. I will keep a list, curating and maintaining my own archive...moodboards. My defensible worldview will come from this body. The collection will be representative of my state of mind.
+I want to store and use the work of other contemporaries for my reference. I will keep a list, curating and maintaining my own archive...moodboards. My defensible worldview will come from this body. The collection will be representative of my state of mind. Learning and practicing Hindi, Punjabi, French, and Spanish remains very important to me. Collaboration and working with others is also important to me.
 
 ##### The Truth About Home
 
