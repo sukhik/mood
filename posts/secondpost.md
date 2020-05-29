@@ -23,10 +23,13 @@ Personal consulting and professional consulting, @aurself
 A wellness service with food options, @austinayurveda
 The digital collective, @narangi_sona
 
-Other: @chepeaustin, a business for my second family / @satnamgrewalrealtor, a business for my mom
+Other: 
+/ @satnamgrewalrealtor, social media for my mom
+/ @chepeaustin, social media for my second mom 
+
 
 My blogs at this moment are <a href="https://nargis.netlify.app/">nargis</a> and <a href="https://fybr.netlify.app/">fybr</a>.
 
 This is everything for now.
 
-I have to set some specific, measurable, acheivable, realistic time-bound goals, I'll post on next post.
+I have to set some specific, measurable, achievable, realistic time-bound goals, I'll post on next post.
