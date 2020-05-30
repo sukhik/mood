@@ -9,7 +9,7 @@ tags:
   - self-improvement
   - health
 ---
-I'm still taking flak. I've got harsh critics breathing down my neck for SMART goals, which assign specific, measurable, attainable, relevant, time-bound criteria to my operations and here I am meeting that demand though my true intention is to chill. I'm setting the goals for the first fourteen days of June because success over two years requires segmentation and nourishing the visionary in the short, medium, and long run. I use this segmentation in all systems I create. The intervals help and otherwise nothing may happen... I may obtain what I desire which is ultimate, true pure rest. I will say my plan to rest before June is a little failing because I am pretty tired. I am really reactive, emotional still. My mind is jumpy, my body is tired.
+I'm still taking flak. I've got harsh critics breathing down my neck for SMART goals, which assign specific, measurable, attainable, relevant, time-bound criteria to my operations and here I am meeting that demand though my true intention is to chill. I'm setting the goals for the first fourteen days of June because success over two years requires segmentation and nourishing the visionary in the short, medium, and long-terms. I use this segmentation in all systems I create. The intervals help and otherwise nothing may happen... I may obtain what I desire which is ultimate, true pure rest. I will say my plan to rest before June is a little failing because I am pretty tired. I am really reactive, emotional still. My mind is jumpy, my body is tired.
 
 ## The Goals
 
@@ -25,10 +25,10 @@ June is about connecting to my body, the breath and my environment. I want nothi
 
 ## Social Pairing, Business History and My Vision for the Future
 
-I created <a href="https://nargis.netlify.app/">nargis</a>, <a href="https://sukhigwal.wixsite.com/gkyr">gkyr,</a>, and <a href="https://www.instagram.com/austinayurveda/">austin ayurveda to showcase my ideas. 
+I created <a href="https://nargis.netlify.app/">nargis</a>, <a href="https://sukhigwal.wixsite.com/gkyr">gkyr,</a> and <a href="https://www.instagram.com/austinayurveda/">austin ayurveda</a> to showcase my ideas. 
 
 nargis is my devotion to my culture and identity where I can examine related topics. gkyr is a wellness spa, clinic and practice space, and austin ayurveda is a service I want to to venture into and likely the easiest way to enter into this territory. 
 
-In the past I created @kesarsport and @kikichandni. Kesar Sport was a concept (American Ayurveda Health Beauty Concept Contemporary Wellness Adaptive Beauty Acceptance Inner Reason Energy) and KIKI CHANDNI was a concept (Namaskar. Skincare and Beauty Sleep Technology) to play with modern applications of brand, product, and potentially technology. I wanted to see what worked but when I found that "austinayurveda" was available on ig, I went for it. I'm going to build some content into this handle, self-study and report into nargis, and take steps to build gkyr. 
+In the past I created @kesarsport and @kikichandni. Kesar Sport was a concept (American Ayurveda Health Beauty Concept Contemporary Wellness Adaptive Beauty Acceptance Inner Reason Energy) and KIKI CHANDNI was a concept (Namaskar. Skincare and Beauty Sleep Technology) to play with modern applications of brand, product, and potentially technology. I wanted to see what worked. When I saw "austinayurveda" was available on ig, I went for it. I'm going to play with creating social media content, while self-studying and reporting into nargis, and take steps to build gkyr. I have been thinking about teaching yoga since 2016 but I have been in school.
 
 For the first two weeks of June, this is definitely it. I feel a lot better after unloading. I carry this all around me all the time. I am so glad to get it out.
