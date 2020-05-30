@@ -23,7 +23,7 @@ I'm still taking flak. I've got harsh critics breathing down my neck for SMART g
 
 June is about connecting to my body, the breath and my environment. I want nothing more than to come into myself and see through my own two eyes. The physical and mental tiredness is breaking me down. I am disconnected and overworked. June is about paring down. It's subtle, it's about stopping, and stopping fighting. It's about creating distance between myself and my past, bad situations and everyone else. June is about me. June is about my health. It's funny how this is turning into modules.
 
-## Social Pairing, Business History and My Vision for the Future
+### Social, Business, Vision History and My Vision for the Future
 
 I created <a href="https://nargis.netlify.app/">nargis</a>, <a href="https://sukhigwal.wixsite.com/gkyr">gkyr,</a> and <a href="https://www.instagram.com/austinayurveda/">austin ayurveda</a> to showcase my ideas. 
 
