@@ -1,8 +1,8 @@
 ---
-title: Something isn't right
+title: Falling from a long and vivid dream
 date: 2020-05-29T00:00:00.000Z
 author: Sukhi
-summary: Goals for kickoff
+summary: The sweetest flowers and fruits are hanging from trees
 tags:
   - goals 
   - change
