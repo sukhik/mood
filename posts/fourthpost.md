@@ -20,7 +20,7 @@ My entire month of June faced disruption. I got off to a rocky start on the very
 
 I planned to do yoga, write, and meditate. I did so much more. I started up <a href="https://sclub.netlify.app/">a private soccer training business</a> which could pay my rent. There is no predicting, however, the stability or rate of signups, or how long the players will stay on. So far, it has been on a monthly basis and 100% of the players are returning for the second month.
 
-I xeriscaped a perimeter of my front yard, and landscaped it with flowers and trees. I did a side yard as well and I started working on the other perimeters of my house. The gardening and working outside has served as meditation, and the new, designed areas and spaces are secret sitting areas I spend a lot of time in.
+I xeriscaped a perimeter of my front yard, and landscaped it with flowers and trees. I did a side yard as well and started working on the other perimeters of my house. The gardening and working outside has served as meditation. The new, designed areas and spaces are secret sitting areas I spend my time in.
 
 I began collaborating as an art director with designers and photographers on important concepts to be articulated throughout summer and fall. 
 
@@ -30,4 +30,4 @@ I'm loving doing business, and I'm probably going to open up my freelancing area
 
 ### I can't keep track of everything
 
-June is over. 
+June is over. I am the most tired writing this right now. Bye for now. Ciao.
