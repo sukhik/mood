@@ -27,7 +27,7 @@ I have discovered timeblocking and now my entire days are spoken for with abstra
 
 ### DAILY ROUTINE
 
-I need to exercise more. I need to follow my heart and my body. I need to do my self-care and my proper self-work, self-listening before careening into opportunities and hunting and deciding on my prey. I find I wake up thinking about work and jumping on my computer. There is not any method of self-preservation or protection I have in place from the feeling where I have all these options and then, so much to do. I want so approach my days with a much more calm mind. I am stressed out by this, by my shortcomings. After I finish this post, instead of writing to FYBR like I want to, or finishing my assignment for my NEW NEWS cryptocurrency writing job....I need to spend that time on myself and sit in my body. Drop in and lay down dead in myself to hear what I am saying to myself and what my body is saying to itself.
+I need to exercise more. I need to follow my heart and my body. I need to do my self-care and my proper self-work, self-listening before careening into opportunities and hunting and deciding my prey. I find I wake up thinking about work and jumping on my computer. There is not any method of self-preservation or protection I have in place from the feeling where I have all these options and then, so much to do. I want to approach my days with a more calm mind. I am stressed out by this, by my shortcomings. After I finish this post, instead of writing to FYBR like I want to, or finishing my assignment for my NEW NEWS job....I need to spend that time on myself and sit in my body. Drop in, lay down dead in myself, hear what I am saying to myself and what my body is saying to itself.
 
 ### NEW NEWS
 
@@ -37,7 +37,7 @@ Next, I might be hired by Google. Now, THAT would be unexpected and crazy. I hop
 
 ### WRITING
 
-Did I address this a little? I am a paid writer. I am a technical writer but so new to blockchain, financial assests and cryptocurrency that it is a fruitless, meaningless, stupidless blur, a payless job. This is how I feel, of course, nominally I love the achievement, the sense of achievement delivering one paragraph loaded with researched information about a specific asset..it's quite good. 
+Did I address this? I am a paid writer. I am a technical writer but so new to blockchain, financial assests and cryptocurrency that it is a fruitless, meaningless, stupidless blur, a payless job. This is how I feel, of course, nominally I love the achievement, the sense of achievement delivering one paragraph loaded with researched information about a specific asset..it's quite good. 
 
 I want to write for myself, creatively and techincally, this doesn't matter, but what I am understanding is how I hate deadlines, hate doing stuff for others, hate that the sections I am meant to write are my responsibility. I am fearful I am not good enough. Fearful to reveal myself. Fearful I can't do it. Ready to give up. I would like to write my own novel but for four months or so, I have not.
 
