@@ -33,7 +33,7 @@ It is all the cream? The coffee?
 
 I need to exercise more. 
 
-I need to follow my heart and body and this is what they speak to me. I am obligated to do my self-care and proper self-work, self-listening before careening into opportunities, hunting and deciding my prey. I wake up thinking about work to jump to my computer. A method of self-preservation is not in place to protect me from the feeling I have to much to do, then, so much, much too much to do. My days must be approached with more calm and a calm, relaxed mind. I want to cool down and slow down. I am stressed by my shortcomings in this area. After I finish this post, instead of writing to FYBR like I want to, or anything else, my new news or otherwise, I better spend time on myself and sit in my body. Drop in, lay down in myself, down, silent and attentive, hear what I am saying to myself and what my body is saying to me.
+I need to follow my heart and body and this is what they speak to me. I am obligated to do my self-care and proper self-work, self-listening before careening into opportunities, hunting and deciding my prey. I wake up thinking about work to jump to my computer. A method of self-preservation is not in place to protect me from the feeling I have too much to do. My days must be approached with more calm and a calm, relaxed mind. I want to cool down and slow down. I am stressed by my shortcomings in this area. After I finish this post, instead of writing to FYBR like I want to, or anything else, my new news or otherwise, I better spend time on myself and sit in my body. Drop in, lay down in myself, down, silent and attentive, hear what I am saying to myself and what my body is saying to me.
 
 ### NEW NEWS
 
