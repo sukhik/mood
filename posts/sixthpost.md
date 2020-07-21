@@ -44,7 +44,7 @@ I might be hired by Google. This would be unexpected. I hope I do. I know I woul
 
 ### WRITING
 
-Now I am a paid writer. I started doing this, all my blogs and all my documentation to achieve this. But suddenly I don't want it anymore. I am a technical writer working on these reports, but so new to blockchain, financial assests and cryptocurrency that it is a fruitless, meaningless, stupidless blur, a payless job. And I am very clunky. Inefficient. Nominally I love the achievement, the sense of achievement delivering one paragraph loaded with researched information about a specific asset..it's quite good, quite dense, satisfactory. But my process is unbearable. The toll it takes on me is unfriendly.
+Now I am a paid writer. I started doing this, all my blogs and all my documentation to achieve this. But suddenly I don't want it anymore. I am a technical writer working on these reports, but so new to blockchain, financial assests and cryptocurrency that it is a fruitless, meaningless, stupidless blur, a payless job. I am clunky. Inefficient. Nominally I love the achievement, the sense of achievement delivering one paragraph loaded with researched information about a specific asset..it's quite good, quite dense, satisfactory. But my process is unbearable. The toll it takes on me is unfriendly.
 
 I want to write for myself, creatively and techincally. It doesn't matter, this distinction, but what I understand is this: I hate deadlines, hate doing stuff for others, hate my sections I am meant to write which are my responsibility. I fear I am no good. Fearful to reveal myself. Fearful I can't do it. Fearful I won't! Ready to give up. I would like to write my own novel but for four months or so, I did not.
 
