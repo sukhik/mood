@@ -63,7 +63,7 @@ Here we go, in time order:
 
 5. You got SCLUB in the evening and train from 7-9.
 
-6. Return to moodboards, return to the 2yr, you had additional stuff to put down...make a more organized post. More organized than this lol, than by tags.
+6. Return to moodboards, return to the 2yr, you had so much more, pressing stuff to write. 
 
 Ok Sukhi, nice notes to self.
 
