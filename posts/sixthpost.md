@@ -66,7 +66,7 @@ Listen in, listen to yourself, sing to yourself, pray.
 The most beautiful part of your day, your day, quiet down, hear and feel your existence and your beauty.
 
 2. 
-Publish to FYBR with that rates post, with the minimalism post, the paring back. You love to do this, you love going through what you're going through, you want to write what you're going through, you want to share.
+Publish to FYBR with the excitement, the rates post, the minimalism, the paring back. You love to do this, you love going through what you're going through, you want to write what you're going through, you want to share.
 
 3. 
 Reflect on the application of nargis.
