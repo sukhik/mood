@@ -2,7 +2,7 @@
 title: The Ick File
 date: 2020-07-20T00:00:00.000Z
 author: Sukhi
-summary: Tough, digusting times. Not a handsome post, not a public post.
+summary: Tough, disgusting times. Not a handsome post, not a public post.
 tags:
   - calendaring
   - daily routine
