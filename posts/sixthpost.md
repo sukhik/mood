@@ -21,7 +21,7 @@ I'm fine. I'm challenged. I am having beauty problems. Body problems. Problems o
 
 This post is horrible, ugly, arranged by tags in an orderly fashion. I will touch on each tag with a category paragraph to stay focused and keep it light. But fast. But light. But chill. But FAST but light. I'm moving too fast, I'm too......my head...
 
-### CALANDARING
+### CALENDARING
 
 Upon discovering timeblocking, my days are spoken for with abstract ideas. Ideals of what defines a right person to me, the right Sukhi. From morning rituals 6-8am, working out 9am-10 on some days, all the way to work activities, natural free times, designated desk time, night rituals. The protocol was developed last week. I began and I like it a lot. My challenge at this moment is beginning my day with those routines and ending my days on time as planned. There are a lot of other kinks in my system and I am not using the system to my advantage at this moment. My challenge is legion.
 
