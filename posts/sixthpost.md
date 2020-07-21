@@ -20,7 +20,7 @@ tags:
 
 I'm fine. I'm challenged. I am having beauty problems. Body problems. Problems of the most serious kind: time problems, thinking problems, problems with my thoughts. Texas is the furnace of the earth. I am anxious. My thoughts are moving too fast. I feel myself beat down on me, like the sun beating down on me here in this state.
 
-This post is horrible, ugly, arranged by tags in an orderly fashion. I will touch on each tag with a category paragraph to stay focused and keep it light. But fast. But light. I'm moving too fast, I'm too......, ...my head...
+This post is horrible, ugly, arranged by tags in an orderly fashion. I will touch on each tag with a category paragraph to stay focused and keep it light. But fast. But light. I'm moving too fast, I'm too......something, ...my head...
 
 ### CALENDARING
 
