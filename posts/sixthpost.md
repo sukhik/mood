@@ -75,7 +75,7 @@ Reflect on the application of nargis.
 Finish the dreaded ChainLink report. Try not to cry about it, you chose this.
 
 5. 
-SCLUB training this evening, we play and train from 7-9. There is hardly 5 hours remaining before it's time to go, come back, greet the night and sleep again.
+SCLUB training this evening, we play and train from 7-9. There is hardly 5 hours remaining before it's time to go, come back, greet the night again and sleep again.
 
 6. 
 Come back to moodboards, return to the 2yr, you had so much more, pressing stuff to write. So many drafts of this post to have been unsatisfied with, and now you're done. Come soon.
