@@ -27,7 +27,13 @@ Upon discovering timeblocking, my days are spoken for with abstract ideas. Ideal
 
 ### DAILY ROUTINE
 
-Am I well? I need to exercise more. I need to follow my heart and my body and this is what they speak to me. I am obligated to do my self-care and proper self-work, self-listening before careening into opportunities, hunting and deciding my prey. I wake up thinking about work and jumping on my computer. There is not a method of self-preservation or protection I have in place from the feeling where I have all these options and things to do and then, so much to do. I want to approach my days with more calm and a calm, relaxed mind. I am stressed out by my shortcomings. After I finish this post, instead of writing to FYBR like I want to, or anything else, my new news or otherwise, I better spend time on myself and sit in my body. Drop in, lay down dead in myself dead to myself, silent and attentive, hear what I am saying to myself and what my body is saying to me.
+Am I well? Why don't I feel well? 
+
+It is all the cream? The coffee?
+
+I need to exercise more. 
+
+I need to follow my heart and body and this is what they speak to me. I am obligated to do my self-care and proper self-work, self-listening before careening into opportunities, hunting and deciding my prey. I wake up thinking about work to jump to my computer. A method of self-preservation is not in place to protect me from the feeling I have to much to do, then, so much, much too much to do. My days must be approached with more calm and a calm, relaxed mind. I want to cool down and slow down. I am stressed by my shortcomings in this area. After I finish this post, instead of writing to FYBR like I want to, or anything else, my new news or otherwise, I better spend time on myself and sit in my body. Drop in, lay down in myself, down, silent and attentive, hear what I am saying to myself and what my body is saying to me.
 
 ### NEW NEWS
 
