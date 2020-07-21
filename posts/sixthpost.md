@@ -16,7 +16,7 @@ tags:
 
 ## Hi
 
-Okay. I'm fine. I'm challenged. I am having beauty problems. Body problems. Problems of the most serious kind: time problems. Texas is the furnace of earth. I am anxious.
+Okay. I'm fine. I'm challenged. I am having beauty problems. Body problems. Problems of the most serious kind: time problems. Texas is the furnace of earth. I am anxious. My thoughts are going too fast.
 
 This post, I arranged the tags in an orderly fashion and I will touch on each tag with a category paragraph to stay focused and keep it light. But fast. But light. But chill. But FAST but light.
 
