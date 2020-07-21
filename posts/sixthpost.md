@@ -11,12 +11,13 @@ tags:
   - weather
   - self-improvement
   - goals
+  - notes to self
 ---
 2yrplan time. Well, what's going on? What state am I in, what's my status? Inquiring minds want to know. 
 
 ## Hi
 
-Okay. I'm fine. I'm challenged. I am having beauty problems. Body problems. Problems of the most serious kind: time problems. Texas is the furnace of earth. I am anxious. My thoughts are going too fast.
+Okay. I'm fine. I'm challenged. I am having beauty problems. Body problems. Problems of the most serious kind: time problems. Texas is the furnace of earth. I am anxious. My thoughts are moving too fast.
 
 This post, I arranged the tags in an orderly fashion and I will touch on each tag with a category paragraph to stay focused and keep it light. But fast. But light. But chill. But FAST but light.
 
@@ -30,11 +31,15 @@ I need to exercise more. I need to follow my heart and my body. I need to do my 
 
 ### NEW NEWS
 
-Obviously, there is some career related stuff. I am putting my technical writing skills to use operating for a research company reporting on the digital asset class of cryptocurrency. And UGH! It's hard and it sucks and it comes to $5 an hour, just about, doesn't it. Do I want to be a writer? Do I want to be a guy? Do I want to be in tech? Do I want to stretch out my brain? Do I like tech? Do I like assets? I don't know. No, probably. Then, I might be hired by Google. Now, THAT would be unexpected and crazy. I hope I get the job. It's not a great job, but it's GOOGLE the company. I just want to make myself proud and make my parents proud. Universe help me.
+Obviously, there is some career related stuff. I am putting my technical writing skills to use operating for a research company reporting on the digital asset class of cryptocurrency. And UGH! It's hard and it sucks and it comes to $5 an hour, just about, doesn't it. Do I want to be a writer? Do I want to be a guy? Do I want to be in tech? Am I into crypto? How adapabtable am I proving to be? Do I want to stretch out my brain? Do I like the challenge? Is it like money?  Yes, no, no no...a lot, yes, yes...no. Haha.
+
+Next, I might be hired by Google. Now, THAT would be unexpected and crazy. I hope I get the job. I just want to make myself proud, even though that feeling goes away so fast for me. Not lasting.
 
 ### WRITING
 
-Did I address this? I am a paid writer. I am a technical writer but so new to blockchain and financial assests and cryptocurrency that it is a fruitless, meaningless, stupidless, payless job. This is how I feel, of course, nominally I love the achievement, and the sense of achievement of delivering one paragraph loaded with information about a specific asset..it's quite good. That being said, I realize I want to write for myself, creatively and techincally, I guess what I am seeing is I hate deadlines, I hate doing stuff for others, I hate that the sections I am meant to write are my responsibility, and I am fearful a little, that I am not good enough. Am I writing it right? I would like to write my own novel but for four months or so I have not.
+Did I address this a little? I am a paid writer. I am a technical writer but so new to blockchain, financial assests and cryptocurrency that it is a fruitless, meaningless, stupidless blur, a payless job. This is how I feel, of course, nominally I love the achievement, the sense of achievement delivering one paragraph loaded with researched information about a specific asset..it's quite good. 
+
+I want to write for myself, creatively and techincally, this doesn't matter, but what I am understanding is how I hate deadlines, hate doing stuff for others, hate that the sections I am meant to write are my responsibility. I am fearful I am not good enough. Fearful to reveal myself. Fearful I can't do it. Ready to give up. I would like to write my own novel but for four months or so, I have not.
 
 ### WEATHER
 
@@ -48,11 +53,11 @@ Self-improvement. I have to write an entire post on this one. I am spent.
 
 Here we go, in time order:
 
-1. Work out, sit in your body, hit the mat, do the stretch, do the dead, listen in and listen to yourself sing to yourself. Make it the most beautiful part of your existence.
+1. Work out, sit in your body, hit the mat, do the stretch, do the dead, listen in and listen to yourself sing to yourself. Make it the most beautiful part of your day, your existence.
 
-2. Hit FYBR with that rates post, and the minimalism post, the paring back, the "not having shit is the new having shit" post. You can do it!
+2. Hit FYBR with that rates post, with the minimalism post, the paring back, the "not having shit is the new having shit" post. You can do it! You love that, you love going through what you're going through.
 
-3. Reflect on nargis...you are doing it.
+3. Reflect on nargis.....apply nargis, do nargis code name nargis.
 
 4. Finish the dreaded ChainLink report. Don't cry.
 
