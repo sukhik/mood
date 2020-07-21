@@ -17,29 +17,29 @@ tags:
 
 ## Hi
 
-I'm fine. I'm challenged. I am having beauty problems. Body problems. Problems of the most serious kind: time problems, thinking problems. Texas is the furnace of earth. I am anxious. My thoughts are moving too fast. I feel myself beat down on me, like the sun beating down on me here in Texas.
+I'm fine. I'm challenged. I am having beauty problems. Body problems. Problems of the most serious kind: time problems, thinking problems, problems with my thoughts. Texas is the furnace of earth. I am anxious. My thoughts are moving too fast. I feel myself beat down on me, like the sun beating down on me here in this state.
 
-This post is horrible, ugly, arranged by tags in an orderly fashion. I will touch on each tag with a category paragraph to stay focused and keep it light. But fast. But light. But chill. But FAST but light. I'm moving too fast, I'm too......my head...
+This post is horrible, ugly, arranged by tags in an orderly fashion. I will touch on each tag with a category paragraph to stay focused and keep it light. But fast. But light. But chill. But FAST but light. I'm moving too fast, I'm too......crazy, my head...
 
 ### CALENDARING
 
-Upon discovering timeblocking, my days are spoken for with abstract ideas. Ideals of what defines a right person to me, the right Sukhi. From morning rituals 6-8am, working out 9am-10 on some days, all the way to work activities, natural free times, designated desk time, night rituals. The protocol was developed last week. I began and I like it a lot. My challenge at this moment is beginning my day with those routines and ending my days on time as planned. There are a lot of other kinks in my system and I am not using the system to my advantage at this moment. My challenge is legion.
+Upon discovering timeblocking, my days become spoken for with abstract ideas. Ideas of what defines a right person to me, the right Sukhi. From morning rituals 6-8am, working out 9am-10 on some days, all the way to work activities, natural free times, designated desk time, night rituals. The protocol was developed last week. I began and I like it a lot. My challenge at this moment is beginning my day with those routines and ending my days on time as planned. There are a lot of other kinks in my system and I am not using the system to my advantage at this moment. My challenge is legion. Stronger, fitter, happier.
 
 ### DAILY ROUTINE
 
 Am I well? Why don't I feel well? 
 
-It is all the cream? The coffee?
+It is all the cream? The coffee? My choices? I am a slug and a sloth.
 
 I need to exercise more. 
 
-I need to follow my heart and body and this is what they speak to me. I am obligated to do my self-care and proper self-work, self-listening before careening into opportunities, hunting and deciding my prey. I wake up thinking about work to jump to my computer. A method of self-preservation is not in place to protect me from the feeling I have too much to do. My days must be approached with more calm and a calm, relaxed mind. I want to cool down and slow down. I am stressed by my shortcomings in this area. After I finish this post, instead of writing to FYBR like I want to, or anything else, my new news or otherwise, I better spend time on myself and sit in my body. Drop in, lay down in myself, down, silent and attentive, hear what I am saying to myself and what my body is saying to me.
+I need to follow my heart and body and this is what they speak to me. I am obligated to do my self-care and proper self-work, self-listening before careening into opportunities, hunting and deciding my prey. I wake up thinking about work to jump to my computer. A method of self-preservation is not in place to protect me from the feeling I have too much to do. My days are not approached with a calm, relaxed mind. I want to cool down and slow down. I want to do better. I am stressed by my shortcomings in this area. After I finish this post, instead of writing to FYBR like I want to, or anything else, my new news or otherwise, I better spend time on myself and sit in my body, and hear what I am saying to myself and what my body is saying to me.
 
 ### NEW NEWS
 
-There is some career related stuff. It is not going according to plan where I decided not to work and instead self-develop. I am now putting my technical writing skills to use operating for a research company reporting on the digital asset class known as cryptocurrency. Yesterday I started and it was quite hard, and it comes to only $5 an hour, just about, doesn't it, with the amount of time it takes me to write and locate and relocate information. Do I want to be a writer? Am I into crypto? Do I want to be a guy? Do I want to be in tech? Am I proving myself to be adaptable? Am I good person? Is this making me a better person? Is my brain stretching out? Am I enjoying it? Do I like the challenge? Is it about money? What isn't about money? Am I smart? Do other p I guess these questions are why I wanted to write <a href="https://fybr.netlify.app/">FYBR</a> and <a href="https://nargis.netlify.app/">nargis</a> in the first place.
+There is some career related stuff. It is not going according to plan where I decided not to work. I am now putting my technical writing skills to use operating for a research company reporting on the digital asset class known as cryptocurrency. Yesterday I started and it was quite hard, comes to only $5 an hour, just about, doesn't it, with the amount of time it takes me to write and locate and relocate information. Do I want to be a writer? Am I into crypto? Do I want to be a guy? Do I want to be in tech? Am I proving myself to be adaptable? Am I good person? Is this making me a better person? Is my brain stretching out? Am I enjoying it? Do I like the challenge? Is it about money? What isn't about money? Am I smart? Will other people think I am? I guess these questions are why I wanted to write anything, why I started writing <a href="https://fybr.netlify.app/">FYBR</a> and <a href="https://nargis.netlify.app/">nargis</a> in the first place.
 
-I might be hired by Google. This would be unexpected and crazy. I hope I get the job. I know I wouldn't last. I just want to make myself proud, even though that feeling goes away so fast for me. Not lasting, the feeling doesn't last. What a deserving concept in itself I must write about. The feeling that goes away is the feeling I go for most.
+I might be hired by Google. This would be unexpected. I hope I do. I know I wouldn't last. I just want to make myself proud once, even though that feeling goes away so fast. Not lasting, the feeling and I. Together. What a deserving concept in itself. The feeling that goes away is the feeling I go for most.
 
 ### WRITING
 
@@ -78,5 +78,3 @@ SCLUB training this evening, we play and train from 7-9. There is hardly 5 hours
 
 6. 
 Come back to moodboards, return to the 2yr, you had so much more, pressing stuff to write. So many drafts of this post to have been unsatisfied with, and now you're done. Come soon.
-
-Follow the program.
