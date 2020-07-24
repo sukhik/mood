@@ -29,4 +29,10 @@ I wrote TWO to THREE posts already and deleted them due to interruptions. I am g
 
 I think the only thing I can do right now is stop. It's always the only thing I can do.
 
-I am fragmented this second. I have people waiting on me everywhere to do other shit than compose this piece. Bye bye for now.
+I am fragmented this second. I have people waiting on me everywhere to do other shit than compose this piece. Bye bye for now..
+
+## Get some time for yourself
+
+Make more time to work on yourself and your projects. You are going in circles being contorted for something you don't want. Ask yourself what you want and figure it out ASAP. Remove the pressure from yourself and try to think about yourself with love. Remove everything from your sights except for yourself. Be humble, be caring, don't let your anxiety be fucking with you any more.
+
+Let's go.
