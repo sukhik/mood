@@ -19,7 +19,7 @@ Why can't I live in the present?
 
 The most important work I can do right now is the chop shop. I must complete the bodeguita conversion. I am getting too interrupted to work on my shit.
 
-Next, for some reason, is the landscaping of the side and backyards, and getting storage for the outdoor tools and everything. I have to keep my sights on this project, because it's only mine. I am the project owner for this one, and I have to keep working on it. I am also worried about my tiny cherry tree babies and my okra. I am concerned about growing more food, and treating all the over growth as well.
+Next, for some reason, is the landscaping of the side and back yards, and getting storage for the outdoor tools and everything. I have to keep my sights on this project, because it's only mine. I am the project owner for this one, and I have to keep working on it. I am also worried about my tiny cherry tree babies and my okra. I am concerned about growing more food, and treating the overgrowth as well.
 
 For myself, I need to establish my writing routines and learning times, my schedules, the whole nine yards. I am feeling too slow, I am feeling like I am not achieving enough or producing enough. I feel like I am losing time.
 
